@@ -1,4 +1,4 @@
-## Hi there 👋
+## @justinminjun. Chadwick International. Class of 2027. Seoul.
 
 <!--
 **justinminjun/justinminjun** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
